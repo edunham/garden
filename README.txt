@@ -1,3 +1,4 @@
+2019-10-03: Hillside above lawn. Felled 2 firs and one cascara.
 2019-10-01: First frost. Gourd leaves all dead. Harvested 10 birdhouse gourds and hung them in the woodshed loft. 
 2019-09-29: Saffron crocus, 12 bulbs. Planted in following locations: South of large comfrey, W end of asparagus bed, E end of garden front fence bed, E end of propane tank, S of Slitsa currant, N of hybrid tea rose, beteween blueberries, S of W honeyberry, W of E honeyberry (under some deer sign, in the garden supposed to be deer resistant), 3 in large black pot presently added to the dynamic accumulation of anti-gopher containers next to large comfrey. 
 2019-09-28: Ribes Nigrum vars Schlitsa, Schwarze Traube, Tough Champion. Transplanted from assorted buckets to earth. Expanded utility box garden west to make room, planted ~1m apart in order above (N to S). Schlitsa formerly bucket, good root development, mildly root bound in bottom of bucket. Others formerly plastic tote. Schwarze Traube maintained root ball shape of former pot, as to a lesser degree did Tough Champion. Spread roots while transplanting, mulched well, installed stick cages. 
@@ -17,3 +18,4 @@
 2019-09-23: Birdhouse gourds. Pruned off several rotting mini-gourds. Larger gourds are maturing well.
 2019-09-23: All houseplants. Watered and fertilized. 
 2019-09-17: Comfrey by cedar. Transplanted to earth at edge of cardboard mulched bed. Stabbed cardboard with a shovel to improve drainage, got bitten on back of skull by an angry wasp or hornet which emerged.
+
