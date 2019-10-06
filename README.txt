@@ -1,4 +1,5 @@
 2019-10-06: Lawn beds. Chipped mulch onto two to ~6". Perhaps ought to number or otherwise identify them. They're the one with the wild rose and the one with the tea rose.
+2019-10-06: Corn. Plants appear to have dried up and died, possibly associated with the recent frost. Harvested 8 ears. 
 2019-10-03: Hillside above lawn. Felled 2 firs and one cascara.
 2019-10-01: First frost. Gourd leaves all dead. Harvested 10 birdhouse gourds and hung them in the woodshed loft. 
 2019-09-29: Saffron crocus, 12 bulbs. Planted in following locations: South of large comfrey, W end of asparagus bed, E end of garden front fence bed, E end of propane tank, S of Slitsa currant, N of hybrid tea rose, beteween blueberries, S of W honeyberry, W of E honeyberry (under some deer sign, in the garden supposed to be deer resistant), 3 in large black pot presently added to the dynamic accumulation of anti-gopher containers next to large comfrey. 
@@ -19,5 +20,6 @@
 2019-09-23: Birdhouse gourds. Pruned off several rotting mini-gourds. Larger gourds are maturing well.
 2019-09-23: All houseplants. Watered and fertilized. 
 2019-09-17: Comfrey by cedar. Transplanted to earth at edge of cardboard mulched bed. Stabbed cardboard with a shovel to improve drainage, got bitten on back of skull by an angry wasp or hornet which emerged.
+
 
 
