@@ -1,3 +1,5 @@
+2019-10-07: Camassia Liechtlinii ssp. suksdorfii, "great camas", 3 bulbs. Planted in a N/S row, ~2' apart, N of moso.
+2019-10-07: "camas mix" -- camassia of types quamash (x8), leichtlinii alba (2), caerulea (2). Planted along N and W sides of utility box garden, W side along outer edge of currants. 
 2019-10-06: Lawn beds. Chipped mulch onto two to ~6". Perhaps ought to number or otherwise identify them. They're the one with the wild rose and the one with the tea rose.
 2019-10-06: Corn. Plants appear to have dried up and died, possibly associated with the recent frost. Harvested 8 ears. 
 2019-10-03: Hillside above lawn. Felled 2 firs and one cascara.
