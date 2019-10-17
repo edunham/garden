@@ -1,3 +1,7 @@
+2019-10-17: Egyptian walking onions. Planted 4 in box on porch, 1 in kitchen garden bed with sage and thyme, 2 in lettuce bed of aspagus garden, 1 in asparagus garden corner, 2 among hops in L bed. 
+2019-10-17: Bunching onions. Added a layer of sand, 3 plants thriving in center pot (he shi ko) & 2 in pot nearest clothesline (red welsh)
+2019-10-09: 9 pots in living room. NZ spinach, yeti nasturtium, 2x snot yam, european liquorice, english yew. Soaking moringa, canary island date palm, giant nepal banana. 
+2019-10-08: Lemon verbena. Noticed it had been outside through 2 frosts, brought it indoors. 
 2019-10-07: Camassia Liechtlinii ssp. suksdorfii, "great camas", 3 bulbs. Planted in a N/S row, ~2' apart, N of moso.
 2019-10-07: "camas mix" -- camassia of types quamash (x8), leichtlinii alba (2), caerulea (2). Planted along N and W sides of utility box garden, W side along outer edge of currants. 
 2019-10-06: Lawn beds. Chipped mulch onto two to ~6". Perhaps ought to number or otherwise identify them. They're the one with the wild rose and the one with the tea rose.
