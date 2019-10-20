@@ -1,3 +1,5 @@
+2019-10-19: 6 mini succulents from farmers market. Allegedly all ok to leave outdoors. 
+2019-10-18: NZ spinach in pot on windowsill. Seed has sprouted ~1" of stem, seed casing still present where leaves ought to end up. 
 2019-10-17: Egyptian walking onions. Planted 4 in box on porch, 1 in kitchen garden bed with sage and thyme, 2 in lettuce bed of aspagus garden, 1 in asparagus garden corner, 2 among hops in L bed. 
 2019-10-17: Bunching onions. Added a layer of sand, 3 plants thriving in center pot (he shi ko) & 2 in pot nearest clothesline (red welsh)
 2019-10-09: 9 pots in living room. NZ spinach, yeti nasturtium, 2x snot yam, european liquorice, english yew. Soaking moringa, canary island date palm, giant nepal banana. 
