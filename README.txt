@@ -1,5 +1,7 @@
+2019-10-20: Split and repotted "ice plant" succulent. The succulent that flowered in the fall in the strawberry planter died after flowering, so uprooted it and added it to compost. Added potting soil to top of that planter. 
 2019-10-20: Relocated porch cardboard and shed cardboard pile to outside back fence of orchard garden. 
 2019-10-20: Potted the mini succulents, 3 per pot in 2 shallow pots. Placed them on top of the dividers in the small flowerbed on car side of kitchen garden. 
+2019-10-20: Fenced around wasabi to deter deer. Both are still alive, though smaller pot looks happier. 
 2019-10-20: Cleaned misc plastic and wood junk out of range area and kitchen garden. 
 2019-10-19: 6 mini succulents from farmers market. Allegedly all ok to leave outdoors. 
 2019-10-18: NZ spinach in pot on windowsill. Seed has sprouted ~1" of stem, seed casing still present where leaves ought to end up. 
