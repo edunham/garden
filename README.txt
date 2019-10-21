@@ -1,3 +1,6 @@
+2019-10-20: Relocated porch cardboard and shed cardboard pile to outside back fence of orchard garden. 
+2019-10-20: Potted the mini succulents, 3 per pot in 2 shallow pots. Placed them on top of the dividers in the small flowerbed on car side of kitchen garden. 
+2019-10-20: Cleaned misc plastic and wood junk out of range area and kitchen garden. 
 2019-10-19: 6 mini succulents from farmers market. Allegedly all ok to leave outdoors. 
 2019-10-18: NZ spinach in pot on windowsill. Seed has sprouted ~1" of stem, seed casing still present where leaves ought to end up. 
 2019-10-17: Egyptian walking onions. Planted 4 in box on porch, 1 in kitchen garden bed with sage and thyme, 2 in lettuce bed of aspagus garden, 1 in asparagus garden corner, 2 among hops in L bed. 
