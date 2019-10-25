@@ -1,3 +1,7 @@
+2019-10-24: Relocated turmeric to front porch.
+2019-10-24: Planted bucket raspberry into the ground at end of lawn currants, next to trailing raspberry. 
+2019-10-24: Planted bucket apple-or-pear into the ground in the tea rose bed of the lawn. No sign of getting rootbound, despite 2-3 years in bucket. Appears to have been pruned aggressively before I got it.
+2019-10-22: Cut down most of a vine maple on the hillside, started fence next to larger comfrey patch.
 2019-10-20: Split and repotted "ice plant" succulent. The succulent that flowered in the fall in the strawberry planter died after flowering, so uprooted it and added it to compost. Added potting soil to top of that planter. 
 2019-10-20: Relocated porch cardboard and shed cardboard pile to outside back fence of orchard garden. 
 2019-10-20: Potted the mini succulents, 3 per pot in 2 shallow pots. Placed them on top of the dividers in the small flowerbed on car side of kitchen garden. 
@@ -33,6 +37,7 @@
 2019-09-23: Birdhouse gourds. Pruned off several rotting mini-gourds. Larger gourds are maturing well.
 2019-09-23: All houseplants. Watered and fertilized. 
 2019-09-17: Comfrey by cedar. Transplanted to earth at edge of cardboard mulched bed. Stabbed cardboard with a shovel to improve drainage, got bitten on back of skull by an angry wasp or hornet which emerged.
+
 
 
 
