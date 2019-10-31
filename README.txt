@@ -1,3 +1,5 @@
+2019-10-31: walking onions on porch have sprouted. Yeti nasturtium in living room has true leaves. Licorice in living room has sprouted. 
+2019-10-31: Planted blue elderberries from fridge in cage in greenhouse.
 2019-10-24: Relocated turmeric to front porch.
 2019-10-24: Planted bucket raspberry into the ground at end of lawn currants, next to trailing raspberry. 
 2019-10-24: Planted bucket apple-or-pear into the ground in the tea rose bed of the lawn. No sign of getting rootbound, despite 2-3 years in bucket. Appears to have been pruned aggressively before I got it.
