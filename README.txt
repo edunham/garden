@@ -1,3 +1,4 @@
+2019-11-03: Found fuzzy kiwi plants on sale. Planted male in the center of the bed that had wasps, female Blake near N end of bed with wild rose, female Hayward near S end of bed with tea rose, in lawn. Excellent roots on both females; male's roots did not entirely reach bottom of pot. Several dried leaves hanging onto the male; females were leafless already. 
 2019-10-31: walking onions on porch have sprouted. Yeti nasturtium in living room has true leaves. Licorice in living room has sprouted. 
 2019-10-31: Planted blue elderberries from fridge in cage in greenhouse.
 2019-10-24: Relocated turmeric to front porch.
