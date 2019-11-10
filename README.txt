@@ -1,3 +1,6 @@
+2019-11-10: Utility box bed gets: Veronica spicata "purpleicious", canna x generalis "cannova(r) Lemon", canna x generalis "cannaove(r) Flame", geranium x cantabrigiense "biokovo", "lil' kim rose of sharon"
+2019-11-10: Garden store had $1 perennials. 
+2019-11-07: Transplanted turmeric to ~5gal pot in greenhouse.
 2019-11-07: Transplanted one bucket pomegranate to lawn. Despite copious drain holes in bottom of bucket, soil was wet and soggy/sticky. Moderate root development present, 2-3 roots reaching bottom of bucket. 
 2019-11-04: Innoculated 2 logs, from the same recently felled fir, with phoenix oyster plugs. Roughly 100 plugs between the two, slightly more in the shorter and broader log. Waxed both ends of narrower, and only the top end of the broader log. Waxed all plug sites with paraffin. Drove plugs to varied depths. Placed both logs vertically at shady end of shed, next to wasabi, for now. Might bury 1/4 of the broader one in soil eventually, as suggested in instruction pamphlet. 
 2019-11-03: Found fuzzy kiwi plants on sale. Planted male in the center of the bed that had wasps, female Blake near N end of bed with wild rose, female Hayward near S end of bed with tea rose, in lawn. Excellent roots on both females; male's roots did not entirely reach bottom of pot. Several dried leaves hanging onto the male; females were leafless already. 
