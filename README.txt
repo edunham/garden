@@ -1,3 +1,4 @@
+2019-11-17: Immense quantities of chipping. Put chip mulch on former bin apple, N wing and corner of asparagus bed (only the variety just E of the corner in the W wing still has stalks up, and there's at least one with berries of that var... bloody dock and good king henry are doing fine in that bed though), and assorted lawn beds. Put away quite a bit of cherry wood as well.
 2019-11-16: Got sunchokes at saturday market. Planted some in a tyre bed next to the tulips, S side of greenhouse.  
 2019-11-16: Found tulips on sale at grocery. Made pest resistant bed from a tyre and some scrap steel on S side of greenhouse, planted 4 tulips. 
 2019-11-16: Finally relocated bin apple to lawn -- actually near E end of greenhouse. Blue tag fell off when wrestling it out of the bin. Soil was oddly clay-bricks in some areas but black and fertile in others -- perhaps cooked in the bin over summer? Threw in some daffodil bulbs around edges of hole. 
