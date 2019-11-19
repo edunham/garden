@@ -1,3 +1,5 @@
+2019-11-18: Tiny texas everbearing fig arrived, with more roots under the pot than in it. Planted it in a well-draining soil mix in a big black pot in the greenhouse. 
+2019-11-18: Planted 8 more tulip bulbs into a tyre bed in front of the greenhouse. It's the 3rd from the W end.  
 2019-11-17: Immense quantities of chipping. Put chip mulch on former bin apple, N wing and corner of asparagus bed (only the variety just E of the corner in the W wing still has stalks up, and there's at least one with berries of that var... bloody dock and good king henry are doing fine in that bed though), and assorted lawn beds. Put away quite a bit of cherry wood as well.
 2019-11-16: Got sunchokes at saturday market. Planted some in a tyre bed next to the tulips, S side of greenhouse.  
 2019-11-16: Found tulips on sale at grocery. Made pest resistant bed from a tyre and some scrap steel on S side of greenhouse, planted 4 tulips. 
