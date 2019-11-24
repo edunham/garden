@@ -1,3 +1,6 @@
+2019-11-24: Planted Meader male hardy kiwi 6" west of indeterminate shrubby tree, about 4' E of Dumbarton Oaks. Same deal -- set moss aside, dug tiny hole, planted kiwi in hole, put moss back, redecorated with thorny dead blackberry canes. 
+2019-11-24: Planted groundnut 6" W of the big elderberry on the hillside (S of the hummingbirds' favorite hazel). Beautiful moist dark soil with excellent structure; mulched with moss and stacked some twigs around to discourage deer. No added fertilizer or fencing.
+2019-11-24: Planted Dumbarton Oaks female hardy kiwi 6" E of medium fir tree on hillside. Nicked a pine root a little. Mulched well with moss, stacked bits of dead blackberry vine about to deter any grazers. 
 2019-11-18: Tiny texas everbearing fig arrived, with more roots under the pot than in it. Planted it in a well-draining soil mix in a big black pot in the greenhouse. 
 2019-11-18: Planted 8 more tulip bulbs into a tyre bed in front of the greenhouse. It's the 3rd from the W end.  
 2019-11-17: Immense quantities of chipping. Put chip mulch on former bin apple, N wing and corner of asparagus bed (only the variety just E of the corner in the W wing still has stalks up, and there's at least one with berries of that var... bloody dock and good king henry are doing fine in that bed though), and assorted lawn beds. Put away quite a bit of cherry wood as well.
