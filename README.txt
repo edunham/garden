@@ -1,3 +1,10 @@
+2019-12-11: Utah Sweet pomegranate is in a little thicket maybe 10' downhill of izu persimmon. 
+2019-12-11: Some plants arrived. Izu persimmon is straight downhill by maybe 1' of an old stump between the sad fir and the medium sad pine. It had some white mold on its roots, looked superficial to the reddish dirt.
+2019-12-11: Latham raspberry maybe 1' uphill of a new stump just downhill of the sad fir.
+2019-12-11: Fall Gold raspberry is SE of izu persimmon's old stump.
+2019-12-11: Eastern paw paw seedling is in the mess by the other baby pawpaws, behind the greenhouse. 
+2019-12-11: Aberquina olive, reliable mayhaw, heritage raspberry, and bababerry (turns out it's also a raspberry) are in various buckets in front of the green house waiting for me to figure out what to do with them.
+2019-12-11: 2yr Black monukka grape is maybe 1' N of the sad fir. Hope digging its hole didn't wreck enough of the fir's roots to kill it, but it ought to make a decent trellis alive or dead.
 2019-11-24: Stuck the Shangri La Mulberry into the lawn in sort of the center of the triangle between moso, old bamboo, and the last coppiced cedar. Mulched well with wood chips, applied cage formerly from lemon tree.
 2019-11-24: Situated the 2 Select pawpaws behind the greenhouse. The one under the N side of the hazel clump with the fir top in it had its root ball come to pieces when transplanting, so the roots were disturbed a bit. The one on the S side of the 4" trunked misc deciduous tree (chitum?) had its root ball come out all in one piece and is relative undisturbed. They're maybe 4' apart. Piled both with assorted botanical rubbish from nearby.
 2019-11-24: Planted Meader male hardy kiwi 6" west of indeterminate shrubby tree, about 4' E of Dumbarton Oaks. Same deal -- set moss aside, dug tiny hole, planted kiwi in hole, put moss back, redecorated with thorny dead blackberry canes. 
