@@ -1,3 +1,5 @@
+2019-12-13: Trifoliate orange into lawn, ~3' S of male fuzzy kiwi. Allegedly very deer resistant. 
+2019-12-13: Something seems to have nibbled on the ends of some of the bunching onions under the clothesline. Put up some chicken wire most of the way around them in case it's deer.
 2019-12-11: Utah Sweet pomegranate is in a little thicket maybe 10' downhill of izu persimmon. 
 2019-12-11: Some plants arrived. Izu persimmon is straight downhill by maybe 1' of an old stump between the sad fir and the medium sad pine. It had some white mold on its roots, looked superficial to the reddish dirt.
 2019-12-11: Latham raspberry maybe 1' uphill of a new stump just downhill of the sad fir.
