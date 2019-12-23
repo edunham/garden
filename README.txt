@@ -1,5 +1,5 @@
-2019-12-23: Something dug maybe half the soil out of the smaller wasabi pot. Wasabi still alive with small leaves; larger pot wasabi has small holes eaten in bigger leaves but little leaves coming on. 
-2019-12-23: Potted 2x Bogachiel and 1x Kalaloch yacon rhizomes from cultivariable. Now to keep them cold but not frosted till ~1mo before last frost. 
+2019-12-23: Something dug maybe half the soil out of the smaller wasabi pot. Wasabi still alive with small leaves; larger pot wasabi has small holes eaten in bigger leaves but little leaves coming on.  
+2019-12-23: Potted 2x Bogachiel and 1x Kalaloch yacon rhizomes from cultivariable. Now to keep them cold but not frosted till ~1mo before last frost. https://www.cultivariable.com/instructions/andean-roots-tubers/how-to-grow-yacon/
 2019-12-13: Trifoliate orange into lawn, ~3' S of male fuzzy kiwi. Allegedly very deer resistant. 
 2019-12-13: Something seems to have nibbled on the ends of some of the bunching onions under the clothesline. Put up some chicken wire most of the way around them in case it's deer.
 2019-12-11: Utah Sweet pomegranate is in a little thicket maybe 10' downhill of izu persimmon. 
