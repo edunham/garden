@@ -1,4 +1,7 @@
-2020-01-01: Ravine work. Cleared path, started 3 mini ponds (top, middle, bottom). 
+2020-01-06: Some limbing and blackberry cutting at lunch time, seeking site for uphill tanks. Accidentally built loop trail from future pond site to hillside above lawn.
+2020-01-05: Limbed and cut blackberries below driveway near 2nd pullout. Broke trail w/ A from falls to fawn bones pond, then from there to hill road. A found a single point antler on the ground near the E property line. 
+2020-01-04: Emptied cage tank, which had filled. Relocated one white sage in pot from kitchen garden to greenhouse. 
+2020-01-01: Ravine work. Cleared path, started 3 mini ponds (top, middle, bottom). Attached cage tank to downspout..
 2019-12-28: Planted out cultivariable's clone C florida betony. 1 in the whiteish taro pot that i think the taro died in, 2ea in the tyre stacks in the fenced garden (found an apparently living horseradish tuber in the one where it seemed like the horseradish had died)
 2019-12-23: Something dug maybe half the soil out of the smaller wasabi pot. Wasabi still alive with small leaves; larger pot wasabi has small holes eaten in bigger leaves but little leaves coming on.  
 2019-12-23: Potted 2x Bogachiel and 1x Kalaloch yacon rhizomes from cultivariable. Now to keep them cold but not frosted till ~1mo before last frost. https://www.cultivariable.com/instructions/andean-roots-tubers/how-to-grow-yacon/
