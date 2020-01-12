@@ -1,3 +1,4 @@
+2020-01-11: All 3 weeping willow cuttings from Dec 24 that were in the water have started rooting and leafing. Placed 2 of those 3 into a pot of soil on the kitchen windowsill. Put all 3 that I tried starting in the pot into the water, as they showed no growth and were looking a little dry. 
 2020-01-06: Some limbing and blackberry cutting at lunch time, seeking site for uphill tanks. Accidentally built loop trail from future pond site to hillside above lawn.
 2020-01-05: Limbed and cut blackberries below driveway near 2nd pullout. Broke trail w/ A from falls to fawn bones pond, then from there to hill road. A found a single point antler on the ground near the E property line. 
 2020-01-04: Emptied cage tank, which had filled. Relocated one white sage in pot from kitchen garden to greenhouse. 
