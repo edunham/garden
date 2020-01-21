@@ -1,3 +1,4 @@
+2020-01-20: Planted York Imperial apple (good keeper) just S of the hummingbirds' favorite hazel bush. Planted Brook plum directly uphill of Dan Bae pear, sort of by a head-height cherry stump and downhill of a big old fir stump. Planted Moyer plum sort of SW of Brook by about 10', at the foot of another rotted old fir stump. Wove some of the gangly underbrush into arch trellises near the hardy kiwis. 
 2020-01-12: Planted nonpareil almond near old house site near power line space and hawthorn hedge. 
 2020-01-12: Planted danbae bear on hill near persimmon and lapins cherry by the fence post near the cedars and mulberry. 
 2020-01-11: All 3 weeping willow cuttings from Dec 24 that were in the water have started rooting and leafing. Placed 2 of those 3 into a pot of soil on the kitchen windowsill. Put all 3 that I tried starting in the pot into the water, as they showed no growth and were looking a little dry. 
