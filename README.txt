@@ -1,5 +1,6 @@
 2020-02-14: Willows, put 2ea of all 10 varieties into water to start growing roots.
 2020-02-14: Ft Laramie Strawberries, marked with flat clear glass tokens. 2 plants into pots, 24 into various beds (asparagus, sunchoke tyres bed, lawn pomegranate bed)
+2020-02-14: Chandler strawberries, marked with yellow end sticks. 21 plants around, including in power easement and on hill. 4 plants in 3 pots, as the last 2 seemed too small to do well in the ground. 
 2020-02-12: 23 Seascape strawberries around the domestic gardens (asparagus and the bed N of the horseradish tyres mostly), purple stone markers. 2 in individual pots by porch for J+T, as they're an everbearing.
 2020-02-12: 21 Honoye strawberries out: lawn, hill, orchard. 4 split between 2 pots by front porch for J+T. Black flat glass markers.
 2020-02-11: 24 Sequoia strawberries out: Some in lawn, some on hill, some under asparagus, some under blueberries and raspberries. All marked with large flat green glass marble thingies. 
