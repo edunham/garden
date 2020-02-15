@@ -1,3 +1,6 @@
+2020-02-15: Victoria rhubarb, 3 crowns. Put it in a new bed just S of the honeyberries, W of the errant wild cherry in the fenced garden. Marked 2 with big red rocks. The yerba buena under the cherry tree is still alive and seems ok. Pulled out a lot of blackberries to make the bed. 
+2020-02-15: Honeycrisp apple on full size root stock, albeit kinda scrawny. Put on the N side of a former burn pile atop the bank above the driveway, ~20' E of the maple that died. Took the deer cage off the maple and put it on the apple. Probably ought to water it; haven't yet. 
+2020-02-15: Bosc pear on the hillside, ~15' N of the plums. Huge roots, so watering it in made sank the soil ~2".
 2020-02-14: Willows, put 2ea of all 10 varieties into water to start growing roots.
 2020-02-14: Ft Laramie Strawberries, marked with flat clear glass tokens. 2 plants into pots, 24 into various beds (asparagus, sunchoke tyres bed, lawn pomegranate bed)
 2020-02-14: Chandler strawberries, marked with yellow end sticks. 21 plants around, including in power easement and on hill. 4 plants in 3 pots, as the last 2 seemed too small to do well in the ground. 
