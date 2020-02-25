@@ -1,3 +1,8 @@
+2020-02-24: Heeled in the remaining chestnuts and butternuts. 
+2020-02-24: Planted silverberry ~6' S of the birdhouse cherry over by the asparagus above the iris bed. 
+2020-02-24: Planted goji berry ~6' downhill of the brown turkey fig on the hillside, in a metal cage for deer protection. It was heeled into sand and starting to leaf a little. 
+2020-02-22: Planted layeroka chestnut (sterile) in a clearing E of daffodil trail, precoce migoule chestnut (pollinizer) in clearing W of daffodil trail. 
+2020-02-22: Planted emerald carpet raspberry (rubus pentalobus) directly downhill of the hummingbird hazel. 
 2020-02-16: White carolina pineberry from the store, 11 plants. Planted with white painted stick markersmostly in lawn, some by rhubarb, 1 in a pot. 
 2020-02-16: 10-variety willow set. Planted parallel to power lines above seasonal pond, 1 is E and 10 is W. 
 2020-02-15: Victoria rhubarb, 3 crowns. Put it in a new bed just S of the honeyberries, W of the errant wild cherry in the fenced garden. Marked 2 with big red rocks. The yerba buena under the cherry tree is still alive and seems ok. Pulled out a lot of blackberries to make the bed. 
